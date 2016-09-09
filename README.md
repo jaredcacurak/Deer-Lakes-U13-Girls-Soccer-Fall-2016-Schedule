@@ -12,4 +12,4 @@ Deer Lakes U13 Girls Soccer
 |          | October 9     | at North Allegheny |                                                                          |
 |          | October 16    | at Pine-Richland   |                                                                          |
 |  1:00 PM | October 23    | Harmar             | Moskala Field                                                            |
-|          | October 30    | at Sewickley       |                                                                          |
+|  2:30 PM | October 30    | at Sewickley       | [Quaker Valley Middle School](https://goo.gl/maps/NgywRmt55Pv)           |
