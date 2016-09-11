@@ -7,7 +7,7 @@ Deer Lakes U13 Girls Soccer
 | -------- | ------------- | ------------------ | ------------------------------------------------------------------------ |
 |  2:00 PM | September 11  | at Fox Chapel      | [Middle Road Recreation Area Field 15](https://goo.gl/maps/okjgM9gHEno)  |
 |  1:00 PM | September 18  | Avonworth          | Moskala Field                                                            |
-|          | September 24  | Sewickley          | Moskala Field                                                            |
+|  1:00 PM | September 25  | Sewickley          | Moskala Field                                                            |
 |  1:00 PM | October 2     | Highlands          | Moskala Field                                                            |
 |          | October 9     | at North Allegheny |                                                                          |
 |  1:00 PM | October 16    | at Pine-Richland   | [Pine Park Upper Fields #7](https://goo.gl/maps/EPejp5yTw7M2)            |
